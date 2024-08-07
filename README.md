@@ -13,5 +13,5 @@ Meu nome é adrian ribeiro
 
 adrian.ribeiro.silva28@escola.pr.gov.br
 
-![gto fudido](https://tenor.com/pt-BR/view/cat-jinx-gif-12808090682772849312)
+![gto fudido](https://tenor.com/pqjl1a7ZNL2.gif)
 
